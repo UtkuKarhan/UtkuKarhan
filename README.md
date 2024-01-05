@@ -17,3 +17,4 @@ Currently, I am undergoing rigorous training in Artificial Intelligence and Mach
 I am excited about the limitless possibilities that lie at the intersection of aerospace and AI/ML and am eager to connect with fellow professionals, mentors, and enthusiasts who share a similar passion. Let's explore the future together! 🚀✨
 
 Connect with me to discuss collaborations, opportunities, or simply share insights about the exciting advancements in our fields. 🌐 #Aerospace #AI #MachineLearning #TechEnthusiast
+www.linkedin.com/in/utku-karhan
